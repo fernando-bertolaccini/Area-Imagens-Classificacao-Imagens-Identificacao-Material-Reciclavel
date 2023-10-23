@@ -1,0 +1,1 @@
+# Area-Imagens-Classificacao-Imagens-Identificacao-Material-Reciclavel
